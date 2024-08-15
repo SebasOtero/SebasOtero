@@ -42,7 +42,8 @@
 
 <br>
 
-[![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/instagram-new.png "@sebastiaanotero")](https://www.instagram.com/sebastiaanotero/)  [![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "@anushkawijegoonawardana97")](https://www.linkedin.com/in/sebasti%C3%A1n-otero1999/) 
+[![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/instagram-new.png "@sebastiaanotero")](https://www.instagram.com/sebastiaanotero/)  [![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "@Sebastian Otero
+")](https://www.linkedin.com/in/sebasti%C3%A1n-otero1999/) 
 
 <br>
 
